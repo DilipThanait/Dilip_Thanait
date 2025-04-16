@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [3 Month Internship on Front-End Web Development](3 Month Internship on Front-End Web Development)
 
-- ⚡ Fun fact **I am funny😂🤣**
+- ⚡ Fun fact **I am funny with good looking handsome boy😂🤣**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
